@@ -1,1 +1,1 @@
-camas camarotes y chipus
+camas camarotes y chipus.
